@@ -1,0 +1,2 @@
+# premium-barrel-brown-001-barrel-browning-rust-blue-cr
+Stop guessing your chemical ratios and losing track of timed stages—your next barrel browning or rust blue project deserves a precise, repeatable process.  This Notion template turns your workshop notes into a structured system. No more scattered sticky notes or forgotten formulas. Track every batch from surface prep to final carding, with built-in
